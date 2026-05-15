@@ -1,4 +1,4 @@
-# 
+# rare OriginPro for PC | OriginPro for Windows Tool | equation-editing + import-export offers the most advanced OriginPro for PC | OriginPro for Windows tool, with equation-editing
 
 
 
